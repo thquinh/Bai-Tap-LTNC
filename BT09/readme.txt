@@ -1,0 +1,1 @@
+Có làm thêm bài C2 
